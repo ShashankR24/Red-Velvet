@@ -37,4 +37,4 @@ Cake:
  2-3 tablespoons red food coloring
  1 cup (240 ml) buttermilk
 
-and your RED VELVET IS READY SARAH MAM :-)
+ RED VELVET IS READY 
